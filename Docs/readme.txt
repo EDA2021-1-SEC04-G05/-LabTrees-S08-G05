@@ -1,1 +1,1 @@
-Responder preguntas y marcar con el nombre de los integrantes
+Est 2: Juana Mejía 202021512 j.mejia17@uniandes.edu.co , Est 1: Santiago Díaz 201912247 s.diazm1@uniandes.edu.co
